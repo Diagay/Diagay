@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Diagay
+- 👋 Hi, I’m @Diagon
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning how to reach people
 - 💞️ I’m looking to collaborate on males
